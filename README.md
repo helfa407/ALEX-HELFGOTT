@@ -91,6 +91,19 @@ The JUUL was well designed but the health effects  of JUUL still have not been c
 as if  it was a craze  rather than a device to help people stop smoking makes JUUL  really conterervisal.
 
 
+SOURCES:
+
+[Link](https://vapebeat.com/features/juul-vape-explained-works-reviews-device)
+[Link](https://www.juul.com/our-story)
+[Link](https://www.bing.com/search?q=lithioum%20ion%20battery&FORM=ATUR01&PC=ATUR&PTAG=ATUR01RAND)
+[Link](https://en.wikipedia.org/wiki/Aluminium)
+[Link](https://www.bing.com/search?q=circuit+board&go=Search&qs=n&form=QBRE&sp=-1&pq=circuit+boar&sc=8-12&sk=&cvid=6DA69357702B4836B3127B4CABEA9B35)
+
+
+
+
+
+
 
 
 
